@@ -1,1 +1,0 @@
-# lab-optica-ondas
